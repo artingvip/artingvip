@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @artingvip
+- 👀 I’m interested in web3
+- 🌱 I’m currently learning english and blockchain
